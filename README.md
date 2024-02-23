@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on .. XRWEB AR projects 
 - 📫 How to reach me ...@duchessb on Discord 
 - 😄 Pronouns: ...#she
-- ⚡ Fun fact: ...I google everything 
+- ⚡ Fun fact: ...I google everything so make sure you know your stuff before  talking to me about some "one line thing you "discovered" 
 
 <!---
 DuchessBB/DuchessBB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
