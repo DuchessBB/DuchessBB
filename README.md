@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DuchessBB
+- 👋 Hi, I’m @pillowquette
 - 👀 I’m interested in  learning  nutrition and community 
 - 🌱 I’m currently learning ...web design and development
 - 💞️ I’m looking to collaborate on .. XRWEB AR projects 
